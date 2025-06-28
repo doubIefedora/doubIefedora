@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/5lhfpa.mov)
+[![retrogradewary](https://files.catbox.moe/5lhfpa.mov)
 
 Dont copy any of my skins + take inspo without permission or i will personally shove pencils up your ass
 
