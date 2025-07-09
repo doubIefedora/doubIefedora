@@ -1,6 +1,8 @@
-original video by unreal from retrograde wary
+original video by lucara from retrograde wary I LOVE KT SO MUCH
 
-https://github.com/user-attachments/assets/bf9b6c7d-a378-4e4f-afcb-59864ed2506a
+
+https://github.com/user-attachments/assets/5aa97e8b-59c6-4d54-930e-96280d293722
+
 
 Dont copy any of my skins + take inspo without permission or i will personally shove pencils up your ass
 
